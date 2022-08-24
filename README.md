@@ -1,2 +1,2 @@
 # KIYOSHI
-" My dream come true and never give up " 
+" One day my dream will come true even though there are many trials " 
